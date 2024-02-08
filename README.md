@@ -24,4 +24,3 @@ Tech-savvy and solution-oriented individual seeking a position as a Tech Support
 - Troubleshooting skills
 - Professional
 - Customer service
-- Professional
