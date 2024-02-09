@@ -24,3 +24,8 @@ Tech-savvy and solution-oriented individual seeking a position as a Tech Support
 - Troubleshooting skills
 - Professional
 - Customer service
+
+## Connect With Me
+
+- LinkdIn: (Kevin Mbaya)(www.linkedin.com/in/kevin-mbaya-a801242b4)
+- MicroSoft Learn:(Kevin Mbaya)(https://learn.microsoft.com/en-us/users/KevinMbaya-1676) 
